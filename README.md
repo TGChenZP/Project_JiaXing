@@ -3,7 +3,7 @@
 
 `Date Produced: 2022-`
 
-*Github: https://github.com/TGChenZP`*
+*Github: https://github.com/TGChenZP*
 
 *Linkedin: https://www.linkedin.com/in/lang-ron-chen-7b5bb5202/*
 
